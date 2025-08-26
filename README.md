@@ -1,1 +1,1 @@
-It just mine. I don't make the rules.
+It's just mine. I don't make the rules.
